@@ -1,4 +1,4 @@
-#  
+#  Experience shrink for brainrots like never before with shrink for brainrots ultimate Scripts, the #1 Script. Includes one-hit kill and god mode for
 
 
 
